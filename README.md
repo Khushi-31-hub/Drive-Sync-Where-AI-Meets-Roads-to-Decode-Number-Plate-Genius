@@ -1,1 +1,1 @@
-# Vehicle-Number-Plate-Communication---A-New-Era-Of-Connectivity
+# Drive-Sync-Where-AI-Meets-Roads-to-Decode-Number-Plate-Genius
